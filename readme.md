@@ -10,4 +10,5 @@ The retaining wall will need to be extended around 13' to the south and sloped b
 The patio surface would measure around 20' x 12'. We'd demo / remove the existing brick pavers prior to work beginning. Here are some examples of materials we'd be interest in for the patio surface. We want a semi-modern, clean design. We really like slate, but budget is a big factor so we're open to options between manufactured or natural stone.
 
 ![alt text](https://github.com/jerdavis/landscaping/raw/master/images/paver.jpg "sample paver")
+
 [Wetcast Yorkstone Patio Block](https://www.menards.com/main/building-materials/landscaping-materials/pavers-patio-blocks/8-x-16-wetcast-yorkstone-patio-block/1791880/p-1444441476664-c-5786.htm)
